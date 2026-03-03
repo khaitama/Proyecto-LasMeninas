@@ -1,1 +1,1 @@
-# Hola soy Khaitama
+# Hola soy Khaitama y soy tonto
